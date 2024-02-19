@@ -16,6 +16,12 @@
 
   Construct a multipurpose structure for children inside the school and make the surrounding landscaping better.
 
+  ![347142162_798676468286193_955244075436793716_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/cbe4de7d-5c70-4fe1-b2b6-4d67bd7f64cb)
+
+  ![355467165_641071971399189_3172782534917265094_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/f2ed0144-5641-475e-8f70-a4115a505165)
+
+  ![IMG_9634](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/3306a26f-be0e-4b78-a547-dc84298a730d)
+
   
 
   
