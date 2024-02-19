@@ -10,7 +10,7 @@
     
   <h3>Aim to construct structures, enhance the standard of living for the surrounding communities, and help participants reach their full potential.<h3>
 
-  <h3>"Korat Camp"
+  <h3>"Korat Camp"<h3>
 
   โครงการเสริมสร้างคุณภาพชีวิต ครั้งที่ 56 @ โรงเรียนบ้านหนองอ้อ ต.เมืองปราสาท อ.โนนสูง จ.นครราชสีมา
 
@@ -19,8 +19,16 @@
   ![347142162_798676468286193_955244075436793716_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/cbe4de7d-5c70-4fe1-b2b6-4d67bd7f64cb)
 
   ![355467165_641071971399189_3172782534917265094_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/f2ed0144-5641-475e-8f70-a4115a505165)
+  
+  ![348618433_1094792924813364_4830804711749871798_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/44dce102-3bc5-4d98-8467-5a08b8773312)
 
-  ![IMG_9634](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/3306a26f-be0e-4b78-a547-dc84298a730d)
+  <h3>"Korat Camp"<h3>
+
+  โครงการสร้างรั้วทาสี สร้างคนดี อาสาพัฒนารุ่นที่ 56 @ โรงเรียนวัดนาขาม ต.บ้านยาง อ.วัดโบสถ์ จ.พิษณุโลก 
+
+  Construct and decorate a fence for kindergarden student area.
+
+
 
   
 
