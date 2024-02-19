@@ -22,11 +22,17 @@
   
   ![348618433_1094792924813364_4830804711749871798_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/44dce102-3bc5-4d98-8467-5a08b8773312)
 
-  <h3>"Korat Camp"<h3>
+  <h3>"Phitsanulok Camp"<h3>
 
   โครงการสร้างรั้วทาสี สร้างคนดี อาสาพัฒนารุ่นที่ 56 @ โรงเรียนวัดนาขาม ต.บ้านยาง อ.วัดโบสถ์ จ.พิษณุโลก 
 
   Construct and decorate a fence for kindergarden student area.
+  
+  ![326859246_575364301108856_1959081445559512839_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/4df4305d-9530-49a2-996e-d11505c2fdc0)
+
+  ![323383877_1589893674765154_2546898544411043230_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/1eb027da-1ce0-442e-acfe-360ea6757c33)
+
+  ![318022674_10159769918479145_4796464939177161706_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/043e03bb-cd04-434f-9178-404b6e3e27b3)
 
 
 
