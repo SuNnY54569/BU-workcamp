@@ -15,6 +15,8 @@ serves as the Head of the Materials and Supplies Department committee member for
 
 โครงการเสริมสร้างคุณภาพชีวิต ครั้งที่ 56 @ โรงเรียนบ้านหนองอ้อ ต.เมืองปราสาท อ.โนนสูง จ.นครราชสีมา
 
+17 May 2023 -7 June 2023
+
 Construct a multipurpose structure for children inside the school and make the surrounding landscaping better.
 
 ![347142162_798676468286193_955244075436793716_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/cbe4de7d-5c70-4fe1-b2b6-4d67bd7f64cb)
@@ -26,6 +28,8 @@ Construct a multipurpose structure for children inside the school and make the s
 <h3>"Phitsanulok Camp"<h3>
 
 โครงการสร้างรั้วทาสี สร้างคนดี อาสาพัฒนารุ่นที่ 56 @ โรงเรียนวัดนาขาม ต.บ้านยาง อ.วัดโบสถ์ จ.พิษณุโลก 
+
+8 December 2022 - 17 December 2022
 
 Construct and decorate a fence for kindergarden student area.
   
