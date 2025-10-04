@@ -43,6 +43,8 @@ Construct and decorate a fence for kindergarden student area.
 
 อาสาพาน้องทาสี @ โรงเรียนลาดงาวิทยาคม (ปลั่ง ฤกษ์จารี) ต.ลาดงา อ.เสนา จ.พระนครศรีอยุธยา 
 
+22 October 2023
+
 Repaint and Decorate the school building
 
 ![395333024_711516961021356_6753911696500236753_n](https://github.com/SuNnY54569/BU-workcamp/assets/87000150/327a548d-8aa9-437c-8443-0eda6e22b3fa)
